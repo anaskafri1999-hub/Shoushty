@@ -1,0 +1,2 @@
+# Shoushty
+My love, I know some days feel heavier than others, and I just want you to know you don’t have to carry them alone. I’m so proud of you for being you, even on the quiet, hard days. You are deeply loved, exactly as you are and I’m here for you always in every little way.💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜💜 
